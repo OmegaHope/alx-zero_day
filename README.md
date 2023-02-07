@@ -1,1 +1,1 @@
-Follow instruction
+Follow instructions
